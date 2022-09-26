@@ -1,4 +1,12 @@
-### Hi there 👋
+# Hi, welcome to my github profile👋
+
+📖 I'm currently a student at SatriNakhonsawan School.<br>
+
+
+# Contact me
+👉[Instagram](https://www.instagram.com/w.teeravat/)<br>
+👉[Facebook](https://www.facebook.com/wteeravat/)
+
 
 <!--
 **teeravatw19/teeravatw19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
