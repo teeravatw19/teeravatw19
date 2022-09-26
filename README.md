@@ -9,7 +9,7 @@
 # Contact me
 👉[Instagram](https://www.instagram.com/w.teeravat/)<br>
 👉[Facebook](https://www.facebook.com/wteeravat/)<br>
-👉Email **teeravat.w19@gmail.com**
+👉[Email](**teeravat.w19@gmail.com**)
 
 <!--
 
